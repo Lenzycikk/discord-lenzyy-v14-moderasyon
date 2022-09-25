@@ -6,5 +6,5 @@ v14 bot diye paylasılan botlar aslında v12 veya v13 olunca bende dedimki salak
 Paylaşmamın bir sebebide bot işlerini salmam 
 
 
-
+# lenzyy_🤠_luis
 Developed By. ⚚ Luıs#0119 & lénzyyyyy.#0762
